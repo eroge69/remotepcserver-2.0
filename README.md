@@ -4,4 +4,4 @@ Luckly I still have the file here
 
 Just click view raw, or download raw file
 
-Update: Looks like they are completely out of business. Now I can't even find the app in playstore. It so sad
+Update: Looks like they are completely out of business. Now I can't even find the app in playstore. So sad :disappointed_relieved:
